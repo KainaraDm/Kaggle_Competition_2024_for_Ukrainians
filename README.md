@@ -1,0 +1,1 @@
+# Kaggle_Competition_2024_for_Ukrainians
